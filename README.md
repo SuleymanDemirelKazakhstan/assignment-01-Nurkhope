@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Tugelbayev Nurkhat 190107080
